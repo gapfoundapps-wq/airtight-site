@@ -12,7 +12,7 @@ We do not sell data. We do not share it with third parties. We do not use it for
 
 ## Who we are
 
-Airtight is published by Gapfound. For any privacy question, email **bakhit53@gmail.com**.
+Airtight is published by Gapfound. For any privacy question, email **gapfound.apps@gmail.com**.
 
 ## Business and account information
 

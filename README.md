@@ -8,7 +8,7 @@ Crystalline silica compliance for Australian trade businesses · New South Wales
 
 ## Getting help
 
-Email **bakhit53@gmail.com**. Please include your business name and, if you are reporting a problem, which screen you were on.
+Email **gapfound.apps@gmail.com**. Please include your business name and, if you are reporting a problem, which screen you were on.
 
 We aim to reply within two business days, Australian Eastern time.
 
